@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ShreeyashGijare
-- 🌱 I’m currently working as an Android Developer for the past 2 years.
+- 🌱 I’m currently working as an Android Developer for the past 3 years.
 - 📫 How to reach me shreeyash.gijare@gmail.com or you can drop a message at https://www.linkedin.com/in/shreeyash-gijare-69b189181/
 
 <!---
